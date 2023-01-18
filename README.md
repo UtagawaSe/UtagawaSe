@@ -48,9 +48,8 @@ Happy to meet you behind the screen.
 
 ***想和我聊天？/Contact Me/連絡先***
 ------------------------------------
-> Twitter:[@nekosanso](https://twitter.com/nekosanso)   
-> Email:<UtagawaTrauma@outlook.com>  
-> bilibili:[葉加瀬酸素](https://space.bilibili.com/390172521)  
+> Twitter:[@UtagawaSession](https://twitter.com/UtagawaSession)   
+> Email:<UtagawaTrauma@outlook.com>    
 > Steam:[歌川　瀬](https://steamcommunity.com/profiles/76561199028333693/)   ~~大家一起变好玩~~  
 
 
